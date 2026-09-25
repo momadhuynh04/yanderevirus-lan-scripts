@@ -1,3 +1,8 @@
+# 📥 Download Full + Scripts
+
+> ### you need to go to my github profile page, on momedhuynh04/readme.md access 'my page' find the post of this game then click download, it an invitation of the discord server that I put the download link
+>
+
 # Yandere Virus — LAN Co-op Guide
 
 Play Yandere Virus co-op over a virtual LAN (Radmin VPN, Hamachi, ZeroTier,
