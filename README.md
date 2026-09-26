@@ -1,6 +1,6 @@
 # 📥 Download Full + Scripts
 
-> ### you need to go to my github profile page, on momedhuynh04/readme.md access 'my page' find the post of this game then click download, it an invitation of the discord server that I put the download link
+> Link in notepad : https://anotepad.com/notes/ngjhjg6s
 >
 
 # Yandere Virus — LAN Co-op Guide
